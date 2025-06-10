@@ -1,1 +1,1 @@
-Crazy Bulgarian man
+Crazy Nordic man
